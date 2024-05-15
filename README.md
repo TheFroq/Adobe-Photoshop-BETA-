@@ -1,4 +1,4 @@
-# Adobe-Photoshop-BETA-
+# Adobe Photoshop BETA CRACK
 
 ![25d5372a69b5db928c20a328177d40c5](https://github.com/BatchQuick/Al-Photoshop-2024/assets/89751410/3372553b-34ab-4ea6-b775-9947ac0ee914)
 
