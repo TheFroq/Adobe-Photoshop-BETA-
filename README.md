@@ -1,2 +1,10 @@
 # Adobe-Photoshop-BETA-
-Cracked by thefroq
+
+https://private-user-images.githubusercontent.com/89751410/329069971-3372553b-34ab-4ea6-b775-9947ac0ee914.jpg?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3MTU4MTY3MDIsIm5iZiI6MTcxNTgxNjQwMiwicGF0aCI6Ii84OTc1MTQxMC8zMjkwNjk5NzEtMzM3MjU1M2ItMzRhYi00ZWE2LWI3NzUtOTk0N2FjMGVlOTE0LmpwZz9YLUFtei1BbGdvcml0aG09QVdTNC1ITUFDLVNIQTI1NiZYLUFtei1DcmVkZW50aWFsPUFLSUFWQ09EWUxTQTUzUFFLNFpBJTJGMjAyNDA1MTUlMkZ1cy1lYXN0LTElMkZzMyUyRmF3czRfcmVxdWVzdCZYLUFtei1EYXRlPTIwMjQwNTE1VDIzNDAwMlomWC1BbXotRXhwaXJlcz0zMDAmWC1BbXotU2lnbmF0dXJlPTEyOWFlODkxYjNhZjdmYTBkNmVlNjUyZjFiOTY4NWY3MTgyNzNhMDk4OTQ5NjUyNWIzNTc2ZjRmZmYxMGI5YzImWC1BbXotU2lnbmVkSGVhZGVycz1ob3N0JmFjdG9yX2lkPTAma2V5X2lkPTAmcmVwb19pZD0wIn0.ZZBoC7FvrHHjj2UlfhDpw3AHWFsorpoktimyypyMxpo
+
+Photoshop'un Geleceği: Yapay Zeka ile Buluşuyor
+Adobe Firefly'ın Photoshop'taki üretici yapay zekası sayesinde, her türlü yaratıcı vizyonu gerçeğe dönüştürürken her konsept üzerinde tam kontrol sahibi olun. Photoshop'un web sürümünde, tarayıcınız üzerinden belirli üretici yapay zeka özelliklerini hemen deneyin.
+
+Azdan Çoka Gidin
+Fikirleri hızlıca keşfedin ve deneyin. Generative Fill (Üretici Doldurma) özelliğini kullanarak, hızlı bir şekilde düzinelerce yüksek kaliteli konsept oluşturun.
+Ayrıca, Photoshop'taki yeni özelliklerle daha fazla fikir üretebilirsiniz. Referans Görüntü özelliği ile aradığınız içeriğe daha yakın sonuçlar elde etmek için örnek bir görüntü yükleyin ve en sevdiğiniz üretilmiş görüntülerin varyasyonlarını oluşturmak için Generate Similar (Benzer Üret) özelliğini kullanın.
